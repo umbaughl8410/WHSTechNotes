@@ -3,3 +3,6 @@ made my journal.
 
 # september 11, 2024
 Me and thaden coded our drone to make it fly and move around.
+
+# september 16, 2024
+we did nothing but talk to each other
