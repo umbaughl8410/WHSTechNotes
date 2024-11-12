@@ -26,3 +26,9 @@ AI can benefit transportation and logistics by helping meet the growing demand f
 
 # October 28, 2024
 Election technology is broadly defined as the information and communication technologies (ICT) used in the planning, management, and conduct of elections. Complementing election officials' voter education and civic literacy efforts.
+
+# November 4, 2024
+if sensitive data falls into the wrong hands, it can lead to fraud, identity theft, or similar harms. use strong, unique passwords, enable two-factor authentication, regularly review your privacy settings, avoid sharing sensitive information directly, carefully manage who can access your content, and utilize features like private repositories on GitHub to restrict visibility when necessary. it can happen when you're not fully considering the audience or the potential consequences of sharing a particularly vulnerable or private detail about your life. use dedicated collaboration platforms with access controls, share only necessary information, maintain separate personal and professional online identities, utilize encryption for sensitive data, and clearly communicate your privacy boundaries with collaborators; always being mindful of what information you disclose publicly and who you share it with.
+
+# November 12, 2024
+The September 11, 2001 terrorist attacks were a series of coordinated attacks on the United States by the Islamist extremist group al-Qaeda. Nineteen terrorists from al-Qaeda hijacked four commercial airplanes, deliberately crashing two of the planes into the upper floors of the North and South Towers of the World Trade Center complex and a third plane into the Pentagon in Arlington, Virginia. 
