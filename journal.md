@@ -32,3 +32,4 @@ if sensitive data falls into the wrong hands, it can lead to fraud, identity the
 
 # November 12, 2024
 The September 11, 2001 terrorist attacks were a series of coordinated attacks on the United States by the Islamist extremist group al-Qaeda. Nineteen terrorists from al-Qaeda hijacked four commercial airplanes, deliberately crashing two of the planes into the upper floors of the North and South Towers of the World Trade Center complex and a third plane into the Pentagon in Arlington, Virginia. 
+9/11 advanced technolegy and computer science by Massive large-scale databases were created to manage and track reference and evidentiary samples
