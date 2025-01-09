@@ -42,3 +42,6 @@ Advanced Robotics. Robotics technology has evolved to create machines that can p
 
 # December 9, 2024
 What the term "brain rot" meant to me is something that is in your hear that isnt good for you but you cant stop thinking bout it. The media hads its ups and downs this year but to me it was a mid way impact. The word "slop" and "lore" connect with my experience with technology this year by connecting me to games that have what the words mean. it's possible to balance meaningful engagement with technology while avoiding “brain rot" by not paying attenion to it or ignoring it. you can do this by looking at stuff that dosent include that stuff or by looking at the things that you like.
+
+# January 8,2024
+I enjoyed the codeing. Everything is fine and dosent need to be improved. Nothing comes to mind for thing i would like to learn in this class. I dont really intend to go for any certifications in this class. 
