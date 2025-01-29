@@ -52,3 +52,11 @@ My thoughts on this shift is that i am curious on how that will do that. I think
 # January 22, 2025
 I think that government intervention impact technology companies and their users by them blocking things that they dont like. So because of this tik tok is banned. What tik tok could have done was made a code that detecs if something is age apropriate or not and can block it depending on the user. this probebly owuld have made tik tok not get banned.
 If i was a develeper at tik tok i would add somthing that would do what i talked about. i would make a code that makes things restricted for certin ages. what i can take from this and apply to any of my projects is
+
+# January 28, 2025
+| Name     | Car | Mistake |
+| :------- | :-- | :------ |
+| Jimmy    |  Honda Civic   |    Drilled Hole In Gas Tank     |
+| Kayla    |  GMC Sierra   |    Fixed Wrong Problem     |
+| Bart     |   Toyota Corolla  |    Left Stains On Carpet     |
+| Harrison |  Subaru Forester   |    Left The Oil Cap Off     |
