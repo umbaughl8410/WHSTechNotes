@@ -60,3 +60,6 @@ If i was a develeper at tik tok i would add somthing that would do what i talked
 | Kayla    |  GMC Sierra   |    Fixed Wrong Problem     |
 | Bart     |   Toyota Corolla  |    Left Stains On Carpet     |
 | Harrison |  Subaru Forester   |    Left The Oil Cap Off     |
+
+# February 4, 2025
+Improvemonts that can help this not happen in the future are tracker type devices that can show up on any type of radar, on planes, that shows where they are and how far they are from them.
