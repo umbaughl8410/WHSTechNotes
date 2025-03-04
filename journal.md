@@ -63,3 +63,15 @@ If i was a develeper at tik tok i would add somthing that would do what i talked
 
 # February 4, 2025
 Improvemonts that can help this not happen in the future are tracker type devices that can show up on any type of radar, on planes, that shows where they are and how far they are from them.
+
+# February 11, 2025
+To enhance decision-making, GameIQ would incorporate machine learning algorithms to analyze historical performance data and predict the likelihood of success for various plays based on current game conditions. For instance, a classification algorithm could be used to determine the best play call based on the opposing team's defensive formation and the team's offensive strengths. Additionally, the application would include visualization tools such as heat maps to show player movement and effectiveness on the field, as well as bar graphs comparing player performance metrics. These visualizations would help coaches quickly identify trends and make strategic adjustments during the game. By providing actionable insights and real-time analytics, GameIQ would empower coaches to make data-driven decisions, ultimately giving the team a competitive advantage on the field.
+
+# February 18, 2025
+Quantum entanglement is a phenomenon where two or more particles become interconnected in such a way that the state of one particle instantly influences the state of the other, regardless of the distance separating them. This means that if you measure the state of one entangled particle, you can instantly know the state of the other, even if they are light-years apart. This concept challenges our classical understanding of physics and raises intriguing questions about the nature of reality and information.
+
+# February 24, 2025
+Technology can facilitate ongoing professional development for educators and service providers through online courses, webinars, and digital resources that focus on current youth language trends. Additionally, social media platforms and educational apps can provide real-time insights and community discussions, helping them stay informed and engaged. Utilizing Online Resources for Professional Development
+
+# March 3, 2025
+Last Friday, our class had the opportunity to interact with a substitute teacher, and it was clear that our behavior significantly influenced their experience. While some students were respectful and engaged, others were less cooperative, which likely made the substitute's job more challenging. It’s important to recognize that substitutes often step into a difficult situation, trying to maintain the same level of learning and discipline as the regular teacher. By not fully cooperating, we may have created an environment that was stressful and disheartening for them. I can imagine that by the end of the day, the substitute felt a mix of frustration and disappointment, wishing for a more supportive atmosphere to work in.
