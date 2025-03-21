@@ -75,3 +75,6 @@ Technology can facilitate ongoing professional development for educators and ser
 
 # March 3, 2025
 Last Friday, our class had the opportunity to interact with a substitute teacher, and it was clear that our behavior significantly influenced their experience. While some students were respectful and engaged, others were less cooperative, which likely made the substitute's job more challenging. It’s important to recognize that substitutes often step into a difficult situation, trying to maintain the same level of learning and discipline as the regular teacher. By not fully cooperating, we may have created an environment that was stressful and disheartening for them. I can imagine that by the end of the day, the substitute felt a mix of frustration and disappointment, wishing for a more supportive atmosphere to work in.
+
+# March 17, 2025
+I engaged with technology, during spring break, in various ways that enhanced my experience, whether for entertainment, communication, or learning. The technology that i used were along the line of videogames and comunication. I played on my PS5 and VR, I used my phone for communtication, and T.V./Projector for entertainment.
