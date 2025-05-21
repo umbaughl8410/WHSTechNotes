@@ -117,3 +117,15 @@ Lucas U.
 | Sally | Chocolate | Graduation | $35.00 |
 | Michal | Vanilla | Farewell Party | $37.00 |
 | Emma | Carrot | Birthday | $39.00 |
+
+# May 5, 2025
+
+It is highly improbable that 100 unarmed people could defeat a silverback gorilla. Silverback gorillas are incredibly strong, with bite forces exceeding 1,300 PSI and the ability to lift up to 4,000 pounds. Even with 100 people, the gorilla's strength, agility, and natural weaponry (teeth and powerful limbs) would make it a formidable opponent, leading to severe injuries among the humans.The Viral Challenge: Responsibility and EducationMaking this kind of challenge go viral is irresponsible due to the potential for harm and misinformation. While some might see it as a thought experiment about strategy and teamwork, many could misunderstand the true danger and brutality of such a confrontation. This highlights how online trends can prioritize entertainment over education, spreading sensational ideas without considering the ethical or practical implications.
+
+# May 12, 2025
+
+The "Chromebook Challenge" is an example of unethical behavior because it puts both individuals and school property at risk. As digital citizens, we have a responsibility to use technology safely and ethically, understanding that our actions have real-world consequences.Ethical Implications and ResponsibilitiesThe "Chromebook Challenge," which involves inserting objects into USB ports, is clearly unethical. This is because it can lead to physical damage to school property, such as Chromebooks, and poses a significant safety risk due to the potential for electrical fires. As students, we are entrusted with valuable resources, and intentionally damaging them is a breach of that trust. Furthermore, such actions can lead to disciplinary consequences, including suspension or expulsion, as schools have policies in place to protect their equipment and ensure a safe learning environment.Real-World Consequences and Responsible Tech UseTo someone who views the "Chromebook Challenge" as a harmless joke, it's crucial to explain the real-world consequences. Damaging school property ultimately affects everyone, as it can lead to increased costs for repairs or replacements, which may result in fewer resources available for educational programs. More importantly, the risk of electrical fires can endanger lives and cause serious injuries. Responsible tech use means understanding the potential impact of our actions and prioritizing safety and respect for property. It also means being a positive influence and discouraging others from participating in dangerous or destructive behaviors.
+
+# May 19, 2025
+
+I cant wait for summer to start. I want school to end so i can be home a lot more.
