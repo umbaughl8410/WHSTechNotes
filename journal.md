@@ -129,3 +129,7 @@ The "Chromebook Challenge" is an example of unethical behavior because it puts b
 # May 19, 2025
 
 I cant wait for summer to start. I want school to end so i can be home a lot more.
+
+# September 2, 2025
+
+I have the no phone law becasue it sucks booty. If i cant have my phone for times i dont have to do something then it will be very very boring
