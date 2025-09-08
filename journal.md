@@ -133,3 +133,7 @@ I cant wait for summer to start. I want school to end so i can be home a lot mor
 # September 2, 2025
 
 I have the no phone law becasue it sucks booty. If i cant have my phone for times i dont have to do something then it will be very very boring
+
+# September 8, 2025
+
+I am not really intrested in a career yet. I am basicaly doing this calss for the fun of it and to learn how to code just in case i need it. If in the future i want to have a job that involves codeing then i would be glad that i took this class. Like lets say i want to code a game with some of my friends, then i owuld remember this class and what i was taought. Then we could make the game and more if we wanted to.
