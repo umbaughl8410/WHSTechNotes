@@ -137,3 +137,11 @@ I have the no phone law becasue it sucks booty. If i cant have my phone for time
 # September 8, 2025
 
 I am not really intrested in a career yet. I am basicaly doing this calss for the fun of it and to learn how to code just in case i need it. If in the future i want to have a job that involves codeing then i would be glad that i took this class. Like lets say i want to code a game with some of my friends, then i owuld remember this class and what i was taought. Then we could make the game and more if we wanted to.
+
+# September 15, 2025
+
+I think that an AI project should benifit anyone who usesit. So an AI that helps with school without giving the answer for free should be created. It meets the requiorments for helping kids with their education. It would be very usefull because it will help with kids who dont understand the problem and if they cant understant what the teacher is telling them. this AI would be a great thing to have for the few people who may need more that talking to have help.
+
+# September 22, 2025
+
+I think that working in a vertual store for real money is a good idea for jobs in the future because that meant that everyone can work from home. even though its a good idea there are some bad things to talk about too. one of them being if someone steals from a store and the people working that are at home, then they cant do anything. That is why we would also need a way for someone to be identified the persone who was robbing the store. Like there can be multiple types of cameras that do more than one thing.
