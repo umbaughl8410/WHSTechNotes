@@ -146,6 +146,10 @@ I think that an AI project should benifit anyone who usesit. So an AI that helps
 
 I think that working in a vertual store for real money is a good idea for jobs in the future because that meant that everyone can work from home. even though its a good idea there are some bad things to talk about too. one of them being if someone steals from a store and the people working that are at home, then they cant do anything. That is why we would also need a way for someone to be identified the persone who was robbing the store. Like there can be multiple types of cameras that do more than one thing.
 
+October 14, 2025
+
+I am using my free journal.
+
 October 20, 2025 
 
 | Name | Class | Seat |
@@ -153,3 +157,12 @@ October 20, 2025
 | Franklin | Second | 91A |
 | Hardeep | Third | 61F |
 | Marla | First | 35B |
+
+October 27, 2025
+
+| Name | Class | Seat |
+| ---- | ----- | ---- |
+| Fiona | Gado Gado | Creme Brulee |
+| Tobias | Shrimp ceviche | French Appale Cake |
+| Leanne | Beef Wellington | Raspberry Tiramisu |
+
