@@ -165,3 +165,7 @@ I am using my free journal.
 | Fiona | Gado Gado | Creme Brulee |
 | Tobias | Shrimp ceviche | French Appale Cake |
 | Leanne | Beef Wellington | Raspberry Tiramisu |
+
+# January 6, 2026
+
+How i used technology over the break was by playing videogames and with the christmas decorations. both use technology by need ing power/electricity to work. They are also for helping with boredome. in the end that is how i used tecnology during the break.
