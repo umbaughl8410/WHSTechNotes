@@ -169,3 +169,15 @@ I am using my free journal.
 # January 6, 2026
 
 How i used technology over the break was by playing videogames and with the christmas decorations. both use technology by need ing power/electricity to work. They are also for helping with boredome. in the end that is how i used tecnology during the break.
+
+# January 12, 2026
+
+Autcraft was created for the pourpose of having a minecraft server for autistic childeren so they can be comfortable being them self. It helped by solving the problem of people being rude and hatefull to autistic children by having a server on minecraft only for them. Even though people can pretend and join the server to be mean to the kids the people who created the server will always know and deal with the situation so that the kids can feel safe again.
+
+# January 20, 2026
+
+A way that technology can help create a more fair and just society is by haveing the power to help people that are trying to understand others. This way people can understand one another even more and are able to help them with what they need. This use of technology would help people grow to like and help others by knowing what they are having problems with. This would work better than just talking face to face because if they are trying to help people that dont understand what language they are speeking then they can have the tech translate it to the person.
+
+# January 29, 2026
+
+This week I did the TSI test for both the english and math. I felt like I did goo if not better on the english one becasue of the fact that I didnt get the extra questions if I did bad on the first 30. For the math one I already know that I was going to do bad becasue I am not good at math. Even though I know that I still tryed to get them done correctly. Now If i had some test prep for the TSI then I might do better but even if I didnt I might still be doing them anyway.
