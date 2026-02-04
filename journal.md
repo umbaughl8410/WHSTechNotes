@@ -181,3 +181,7 @@ A way that technology can help create a more fair and just society is by haveing
 # January 29, 2026
 
 This week I did the TSI test for both the english and math. I felt like I did goo if not better on the english one becasue of the fact that I didnt get the extra questions if I did bad on the first 30. For the math one I already know that I was going to do bad becasue I am not good at math. Even though I know that I still tryed to get them done correctly. Now If i had some test prep for the TSI then I might do better but even if I didnt I might still be doing them anyway.
+
+# February 2, 2026
+
+To behave professionally is to act your age around others. this includes plases like school, offices, and work cites. If you dont act professionally then people will not want to be around you whan something profesional is going on.
