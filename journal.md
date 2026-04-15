@@ -185,3 +185,17 @@ This week I did the TSI test for both the english and math. I felt like I did go
 # February 2, 2026
 
 To behave professionally is to act your age around others. this includes plases like school, offices, and work cites. If you dont act professionally then people will not want to be around you whan something profesional is going on.
+
+# March 23, 2026
+
+I guessed one the braket thing because i am not much of a basketball fan. The results from the first week wernt supprising because i had a feeling that it wasnt gonna go so well. Using data to improve the predictions will help to give me better results. 
+
+# March 30, 2026
+
+Upsets happen when something goes wrong in a game during march madness. Some of the upsets happen in the first round of the games. The rest of them happen in the other games. All of these upsets will make the predictions that you made go diffrently.When that happens then you will see how they can effect your brakets.
+
+# April 9, 2026
+
+I would convince the AI that is locking us in the ship in one way that would mostlikely work. I would tell the AI that even if it is trying to help us by keeping us in the ship that its a bad idea. I would explain by saying that if it thinks that we are too reakless to survive the environment what would happen if we were to stay in the ship that is smaller. The world outside the ship would give the people more room to do things than being in the ship and that if they think that we are reakless, then how would thye expect us to servive in the ship. 
+
+To do this i would first have to be able to get in contact with the AI so i can convince it to let us out. Then when i have contact then i would start to explain my reasoning behind letting us out. If they try to not reaason with me about it then i will give more detail about how they see us as reakless and use that to try to let us out. In doing so they will hopefully understant what i am trying to tell them and they would let us out of the ship.
