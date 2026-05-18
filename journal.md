@@ -222,3 +222,4 @@ This school year helped me work on my responsibility by me needing to get work d
 
 # May 18, 2026
 
+If I had to describe Dorian to the cops, I would say they are the kind of person who would watch anime anytime that he wants, as long as he is content with it. I would say that he is the kind of person who would play a game even if it makes them mad. Also that he is able to do some painfull things without saying ow.
