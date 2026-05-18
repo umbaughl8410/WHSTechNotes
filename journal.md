@@ -214,10 +214,11 @@ Technology shaped my online school experience this week. This is because my teac
 
 # May 6, 2026
 
-
+I think that we dont help train AI systems by using them because of the way they are made. AI was created to get the info off of the web. By using that information we are able to cross out the fact that we are training it because the info is coming from a place that the information is already at.
 
 # May 11, 2026
 
-
+This school year helped me work on my responsibility by me needing to get work done. by that i mean i was able to get work done for most classes even if they were past the due date.
 
 # May 18, 2026
+
