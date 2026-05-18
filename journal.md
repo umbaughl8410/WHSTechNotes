@@ -199,3 +199,25 @@ Upsets happen when something goes wrong in a game during march madness. Some of 
 I would convince the AI that is locking us in the ship in one way that would mostlikely work. I would tell the AI that even if it is trying to help us by keeping us in the ship that its a bad idea. I would explain by saying that if it thinks that we are too reakless to survive the environment what would happen if we were to stay in the ship that is smaller. The world outside the ship would give the people more room to do things than being in the ship and that if they think that we are reakless, then how would thye expect us to servive in the ship. 
 
 To do this i would first have to be able to get in contact with the AI so i can convince it to let us out. Then when i have contact then i would start to explain my reasoning behind letting us out. If they try to not reaason with me about it then i will give more detail about how they see us as reakless and use that to try to let us out. In doing so they will hopefully understant what i am trying to tell them and they would let us out of the ship.
+
+# April 13, 2026
+
+I dont think that modern space technology is reliable enough for long missions. This is because the kind of tech we have today, though it is usefull, is not able to withstand being in space for so long. This is mainly becasue it cant even survive one mission, i mean look at issues with the onboard systems on Artemis II. So no I dont think that modern space technology is reliable enough for long missions.
+
+# April 20, 2026
+
+in my opinion, AI changes the way people experience and trust content like music and media by making people belive something even though its not real. THis is because AI can make images, videos, and even information that are not even real. people will use that stuff and will belive that it will help with what they are trying to do. people even use it for these journals and think that they can get away with it. that is just my opinion though.
+
+# April 27, 2026
+
+Technology shaped my online school experience this week. This is because my teachers used the computers for work in their classes. I liked being able to do the work on the computer becasue it is faster to type than it is to write. so that is why learning in class has gotten better, in my opinion of course.
+
+# May 6, 2026
+
+
+
+# May 11, 2026
+
+
+
+# May 18, 2026
